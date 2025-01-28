@@ -1,2 +1,1 @@
-# Used-GMC
-Welcome to Royal Buick GMC, your premier destination for Buick and GMC vehicles in Baton Rouge and the surrounding areas. As your trusted Buick and GMC car dealership in Baton Rouge, we offer an extensive selection of new and used Buick and GMC vehicles, including the latest models such as the Buick Encore, GMC Sierra, and more. Whether you're in the market for a new Buick or GMC vehicle, a <a href="https://www.royal-buick-gmc.com/">used GMC</a> vehicle, or seeking reliable Buick and GMC car dealership services in Baton Rouge, our experienced team is here to assist you every step of the way. Visit Royal Buick GMC today for all your Buick and GMC needs, conveniently located close to you in Baton Rouge.
+
